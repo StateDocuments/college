@@ -5,3 +5,4 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/5.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/6.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/7.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/feratel.jpg)
