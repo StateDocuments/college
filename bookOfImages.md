@@ -1,1 +1,7 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/0.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/2.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/3.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/4.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/5.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/6.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/college/blob/main/7.jpg)
